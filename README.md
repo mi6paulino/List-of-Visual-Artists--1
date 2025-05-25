@@ -1,6 +1,6 @@
 # <List-of-Visual-Artists--1 ] [Html1]>
 List of visual artists by Michael Paulino Collected May 25 2025 
-go to ^[Edits For cataloge 
+go to ^ 
 @@ -1,3 +1,5 @@ ]>
 Jason Fayette Rhoades (July 9, 1965 - August 1, 2006)
 Paul McCarthy 

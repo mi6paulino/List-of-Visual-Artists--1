@@ -11,3 +11,4 @@ James Rosenquist (pop artist) https://youtu.be/guGv9Nm8rVo?si=PzGnFZNfAqtoFaPS
 Jeffery Vallance - https://youtu.be/25lHieNwu8o?si=MX6Z8dwV7xYko2fi
 Fernando Renes - https://youtu.be/MJMCKXjVYqU?si=zQ1qTW5Rxk5__cE0 ]
 Callum Innes - https://youtu.be/s1ulgWEMYCs?si=7g0XQoeSsZ6uh_Uo
+Pierre Soulages - https://youtu.be/Eydws5jJ6ys?si=9ebTPGG87gNtB_y5

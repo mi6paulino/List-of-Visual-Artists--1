@@ -2,9 +2,6 @@
 List of visual artists by Michael Paulino Collected May 25 2025 
 go to ^ 
 @@ -1,3 +1,5 @@ ]>
-Jason Fayette Rhoades (July 9, 1965 - August 1, 2006) - https://youtu.be/zeo1QVQps8c?si=DX49zJlJ_mYYAcUe
-Paul McCarthy 
-James Rosenquist (pop artist)
 Jason Fayette Rhoades (July 9, 1965 - August 1, 2006) - https://youtu.be/U_aN-_V9GdM?si=OMrlEXljSHIaRmCc
 Paul McCarthy - https://youtu.be/lVP-3dTmpYc?si=S-0cHClhZ7upF5c8
 James Rosenquist (pop artist) https://youtu.be/guGv9Nm8rVo?si=PzGnFZNfAqtoFaPS

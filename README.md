@@ -10,3 +10,4 @@ Fernando Renes - https://youtu.be/MJMCKXjVYqU?si=zQ1qTW5Rxk5__cE0 ]
 Callum Innes - https://youtu.be/s1ulgWEMYCs?si=7g0XQoeSsZ6uh_Uo
 Pierre Soulages - https://youtu.be/Eydws5jJ6ys?si=9ebTPGG87gNtB_y5
 Hiroshi Sugimoto - https://youtu.be/cnKWNbV_Pas?si=wH5YmfvEOKy8_uS_
+Gordon Watson ( Art Collector ) - https://ia600507.us.archive.org/23/items/the.-extraordinary.-collector.-2016.-s-01-e-06.-hdtv.x-264-m-sd-www.-downloadha.com/The.Extraordinary.Collector.2016.S01E06.HDTV.x264-mSD%20%28www.Downloadha.com%29.mp4
